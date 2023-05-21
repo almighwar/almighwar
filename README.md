@@ -14,7 +14,7 @@
   
 ### About Me 👋
 
-- Ayoub I'm top of top and I search for one fact in reality
+- Ayoub I am the top and I am looking for one fact in reality
 
 ## :fire: Stats
 
