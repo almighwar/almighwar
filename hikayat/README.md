@@ -29,7 +29,7 @@ This is for myself, honestly because I relatively don't care if someone finds it
 
 # Three
 
-I am a servant of God, God created me to populate the earth with goodness, From my heart, I'm sure Someday in the future I'll be the greatest person on earth, stronger, steadfast, and clear.
+I am indeed a servant of Allah, Allah created me to populate the earth with goodness, From my heart, I'm sure Someday in the future I'll be the greatest person on earth, stronger, steadfast, and clear.
 
 # أربعة
 
