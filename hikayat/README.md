@@ -8,7 +8,7 @@ They are stories I planned before, and the purpose of them is my pleasure to abs
 
 # واحد
 
-لغتي الأم هي الأمازيغية, لكن سأكتب نسختان, النسخة العربية والنسخة الإنجليزية.
+كدا وكدا
 
 # One
 
